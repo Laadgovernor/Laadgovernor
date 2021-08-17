@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Laadgovernor
+- 👀 I’m interested in ... Discovering new things
+- 🌱 I’m currently learning ... SOFTWARE ENGINEERING
+- 📫 How to reach me ... junaidbuksh@gmail.com
